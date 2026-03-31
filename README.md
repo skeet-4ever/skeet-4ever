@@ -1,16 +1,16 @@
-## Hi there 👋
-
-<!--
-**skeet-4ever/skeet-4ever** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1488376779910418483/Tumblr_l_1181698020892184.jpg?ex=69cc8e65&amp;is=69cb3ce5&amp;hm=e03e38a1aea6af0c3e09dc867bc49e6dd54c18a8aea4aad73b9a55e7eb42d974&amp;=&amp;format=webp" alt="Image"/>　　<img src="https://media.discordapp.net/attachments/1148999953717399584/1488376780338233446/Tumblr_l_1181682671700784.jpg?ex=69cc8e65&amp;is=69cb3ce5&amp;hm=856da57c769a32fc2066e5e64c5209b9684cd806eae71063ce0838a18caf0b5b&amp;=&amp;format=webp" alt="Image"/>
+<p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1488376781370298368/Tumblr_l_1181631149942158.gif?ex=69cc8e65&amp;is=69cb3ce5&amp;hm=6a24b0842cf396d9d5711b01e0035ce210a0a5c0974c699590253ad7ff929d0a&amp;=">　
+ $\text{\color{#d998a7} 𓏵 ,　skeet . skeet hvykin , ᵎᵎ}$ $\text{\color{#ed9daf}c*h freely if friend .　 ᥬᩤ}$　 <img src="https://media.discordapp.net/attachments/1148999953717399584/1488376781852377128/Tumblr_l_1181627063564295.gif?ex=69cc8e65&amp;is=69cb3ce5&amp;hm=a71194dfda9708565c4e6947a6493b54cb4960c48c0dbabf33d206d5cb60e2e9&amp;=">
+<p align="center"> $\text{\color{#d49fab} i have a lot of moodswingz... zrry. ‿◞   ྀི}$
+<p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1488376737107673240/338_sin_titulo_20260330201617.png?ex=69cc8e5a&amp;is=69cb3cda&amp;hm=9d0198df3cb86c651d67602b07fc0265acbc429d3fa0da8d3f0d52770bdd8f5d&amp;=&amp;format=webp&amp;quality=lossless&amp;width=457&amp;height=457">
+<p align="center"> $\text{\color{#d998a7} ︵︵ transmale , omni , quepromntc , acoromntc , suspect. nebularmtc >ᴗ<}$
+<p align="center"> $\text{\color{#de8ea1} taken !　 　▬▬　 alwayz iwc plz !　uzually offtb . w2i pref .}$
+<p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1488376779092787280/Tumblr_l_1181686418885887.jpg?ex=69cc8e64&amp;is=69cb3ce4&amp;hm=053a6070cbae29a7ba289c65482af838516f4947cea64b306fe8f798f8db2b3d&amp;=&amp;format=webp">　　<img src="https://media.discordapp.net/attachments/1148999953717399584/1488376779411558450/Tumblr_l_1181696290000102.jpg?ex=69cc8e64&amp;is=69cb3ce4&amp;hm=b7a36a054c3e3dddcc6e7fefda2cb0434c316c79942297e710eaa932ba335c17&amp;=&amp;format=webp">
+<p align="center"> $\text{\color{#e89eaf} ੭﹕﹒mattfictkinz iwec ( ꩜ ᯅ ꩜;)⁭}$ $\text{\color{#e6a3b2}　14 𓏼 08 / 10　+20 , -10 DNI .𑁤}$
+<p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1488376780648878130/Tumblr_l_1181661899039021.jpg?ex=69cc8e65&amp;is=69cb3ce5&amp;hm=62d16f731966820e07ea8b8f28f6bc6805cda96e23a62e563385f0a93ffb1d21&amp;=&amp;format=webp">　　<img src="https://media.discordapp.net/attachments/1148999953717399584/1488376781000933500/Tumblr_l_1181654807260430.jpg?ex=69cc8e65&amp;is=69cb3ce5&amp;hm=7bc312ec5734dd270f2f6b8bc347ce1da33ead9b1200ed7951bfe7b1b062cbd6&amp;=&amp;format=webp">
+ 
+<p align="center"> $\text{\color{#e0a8b5} ═══════════════════════════════════════════════════════════════}$
+<p align="center"> $\text{\color{#e0a8b5} ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ . 　. ✦ .}$ 　
+<p align="center"> $\text{\color{#e0a8b5} ︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹︶⊹︶︶୨୧︶︶⊹︶︶⊹︶︶୨୧︶︶⊹︶︶⊹}$
+  
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Albertus+Medium&size=18&duration=2893&pause=20&color=D4A1AD&width=435&lines=you+know;i+never+really;gave+it+much+thought+before+but;matt+being+as+school+smart+as+he+is;i+dont+understand+why+he+keeps;staying+with+me;cant+he+make+other+friends;hes+been+getting+better+with+english;but+he+keeps+seeing+me;am+i+really+his+only+friend;god+now+i+just+feel+bad+for+thinking;about+it;ever+since+i+mentioned+that+ive+been;held+back+before+hes+been;insisting+to+try+and+help+me;i+keep+saying+no+but+he+just+cant;get+it+through+his+head+sometimes;i+dont+know+anymore;i+just++i;i+dont+know;i+need+to+find+some+bandages;i+dug+too+deep++again;fucking+hell" alt="Typing SVG" /></a>
